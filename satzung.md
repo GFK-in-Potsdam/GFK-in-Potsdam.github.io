@@ -1,6 +1,6 @@
 # Satzung der Hochschulgruppe Gewaltfreie Kommunikation Potsdam
 
-## §1 Name der Vereinigung
+## §1 Name der Vereinigung, Sitz
 
 ## §2 Zweck und Ziele
 
