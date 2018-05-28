@@ -7,6 +7,13 @@ Geschäftsjahr ist das Kalenderjahr.
 
 ## §2 Zweck und Ziele
 
+1. Zweck der Hochschulgruppe ist,
+   - Mitmenschen zu ermöglichen, kostenlos und mit geringer Hürde sich fortwährend und im Austausch mit anderen
+     mit der Gewaltfreien Kommunikation zu beschäftigen.
+2. Die Ziele der Hochschulgruppe, um diesen Zwecken zu dienen sind folgende:
+   - Wir veranstalten Treffen, die sich thematisch mit der gewaltfreien Kommunikation auseinander setzen.
+
+
 ## §3 Mitgliedschaft
 
 1. Mitglied kann jeder Angehörige der Brandenburgischen (Fach-) Hochschulen werden.
