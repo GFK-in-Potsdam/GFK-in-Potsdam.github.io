@@ -33,11 +33,38 @@ Geschäftsjahr ist das Kalenderjahr.
 Organe des Vereins sind
 
 1.  die Mitgliederversammlung 
-2.  der Vorstand
+2.  der Vorstand.
 
-## §5 Die Mitgliderversammlung
+## §5 Die Mitgliederversammlung
 
-
+1. Oberstes Organ ist die Mitgliederversammlung (MV).
+   Die ordentliche MV tritt mindestens einmal jährlich zusammen.
+   Die Einladung erfolgt schriftlich oder elektronisch unter Mitteilung
+   der Tagesordnung und unter Einhaltung einer Frist von einer Woche.
+2. Außerordentliche MV werden darüber hinaus unter Einhaltung einer
+   einwöchigen Frist durch den Vorstand einberufen, wenn das Interesse
+   der Hochschulgruppe es erfordert oder ein Fünftel der Mitglieder unter Angabe
+   der Gründe die Einberufung schriftlich oder elektronisch verlangt.
+   In letzterem Fall ist die MV innerhalb von drei Wochen nach
+   Antragseingang durchzuführen.
+   Die Einladung mit Tagesordnung erfolgt schriftlich oder elektronisch.
+3. Die MV ist, soweit die Satzung nicht andere Bestimmungen trifft, insbesondere zuständig für
+   - die Genehmigung des Finanzplans; die Entgegennahme des Jahresberichts 
+     und die Entlastung des Vorstands;
+   - die Wahl und Abwahl der Mitglieder des Vorstands;
+   - die  Beschlussfassung über Satzungsänderungen und die Auflösung des Vereins;
+   - die Bildung ständiger Arbeitsgruppen.
+4. Die MV beschließt mit einfacher Mehrheit der anwesenden Mitglieder.
+   Zur Änderung der Satzung ist eine Mehrheit von 2/3 der anwesenden Mitglieder,
+   zur Änderung des Vereinszwecks eine 2/3-Mehrheit aller stimmberechtigten Mitglieder notwendig.
+5. Die MV wird vom Vorstand geleitet, sofern die MV nichts anderes beschließt.
+   Von jeder MV wird ein Protokoll gefertigt, das die Versammlungsleitung unterzeichnet.
+6. Jedes Mitglied verfügt über eine Stimme.
+   Ein auf der MV nicht anwesendes Mitglied kann sein Stimmrecht vorab schriftlich auf eine 
+   Bevollmächtigte übertragen.
+   Die schriftliche Vertretungsvollmacht ist der Versammlungsleitung auf der MV vorzulegen.
+   Eine Bevollmächtigte darf bei Abstimmungen maximal zwei abwesende stimmberechtigte Mitglieder 
+   vertreten.
 
 ## §6 Der Vorstand
 
