@@ -7,7 +7,7 @@
 So kannst du Kontakt aufnehmen:
 
 - Der [Mailingliste] beitreten.  
-  Die Liste nutzen wir für Ankündigungen und Organisatprisches wie das Finden von Terminen, nicht für eine Diskussion.
+  Die Liste nutzen wir für Ankündigungen und Organisatorisches wie das Finden von Terminen, nicht für eine Diskussion.
 - Die Kalender Abbonieren:
   - [Termine ansehen][termine]
   - [ICS] (nur lesen)
