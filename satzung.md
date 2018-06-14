@@ -49,7 +49,7 @@ Organe des Vereins sind
    der Gründe die Einberufung schriftlich oder elektronisch verlangt.
    In letzterem Fall ist die MV innerhalb von drei Wochen nach
    Antragseingang durchzuführen.  
-   Die Einladung mit Tagesordnung erfolgt schriftlich oder elektronisch.
+   Die Einladung mit Tagesordnung erfolgt schriftlich oder elektronisch.  
 (3) Die MV ist, soweit die Satzung nicht andere Bestimmungen trifft, insbesondere zuständig für
    - die Genehmigung des Finanzplans; die Entgegennahme des Jahresberichts 
      und die Entlastung des Vorstands;
@@ -70,16 +70,27 @@ Organe des Vereins sind
    vertreten.
 
 ## §6 Der Vorstand
+(1) Der Vorstand vertritt die Vereinigung nach innen und nach außen.  
+(2) Er wird jährlich durch die Mitgliederversammlung gewählt.  
+(3) Der Vorstand setzt sich aus dem Vorsitzenden und dem stellvertretenden Vorsitzenden zusammen.   
+(4) Der Vorstand oder einzelne Mitglieder des Vorstands können jederzeit mit einer 2/3-
+Mehrheit der Mitglieder abgewählt werden.   
+(5) Über jede Vorstandssitzung muss ein Sitzungsprotokoll erstellt werden.
+
+## §7 Beitragserhebung
+Die Vereinigung erhebt keine Beiträge von ihren Mitgliedern. 
 
 
-
-## $7 Finanzen 
+## $8 Finanzen 
 (1) Die Hochschulgruppe finanziert sich über freiwillige Spenden durch Mitglieder und
 Außenstehende.   
 (2) Die Finanzen werden vom Vorstand verwaltet. 
 
 
-
-## §8 Satzungsänderungen
-
+## §9 Satzungsänderungen
+(1) Anträge zu Satzungsänderungen müssen mit der Einladung zur Mitgliederversammlung
+bekanntgegeben werden.  
+(2) Anträge zu Satzungsänderungen werden beim Vorstand eingereicht.  
+(3) Satzungsänderungen können nur mit 2/3-Mehrheit durch die Mitgliederversammlung
+beschlossen werden.  
 
