@@ -56,6 +56,7 @@ Organe des Vereins sind
    - die Wahl und Abwahl der Mitglieder des Vorstands;
    - die  Beschlussfassung über Satzungsänderungen und die Auflösung des Vereins;
    - die Bildung ständiger Arbeitsgruppen.  
+   
 (4) Die MV beschließt mit einfacher Mehrheit der anwesenden Mitglieder.
    Zur Änderung der Satzung ist eine Mehrheit von 2/3 der anwesenden Mitglieder,
    zur Änderung des Vereinszwecks eine 2/3-Mehrheit aller stimmberechtigten Mitglieder notwendig.  
