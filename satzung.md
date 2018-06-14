@@ -5,12 +5,15 @@
 Die Hochschulgruppe führt den Namen "Gewaltfreie Kommunikation Potsdam" und hat ihren Sitz in Potsdam.
 Geschäftsjahr ist das Kalenderjahr.
 
-## §2 Zweck und Ziele
+## §2 Vision, Zweck, Verwirklichung des Zwecks und Werte
 
-(1) Der Verein verfolgt ausschließlich und unmittelbar gemeinnützige Zwecke im Sinne des Abschnitts
+(1) Die Vision der Vereinigung ist eine Welt, die ein Ort für jede und jeden ist.
+(2) Der Zweck der Vereinigung ist es zu einer solchen Wlt beizutragen.
+
+Der Verein verfolgt ausschließlich und unmittelbar gemeinnützige Zwecke im Sinne des Abschnitts
    "Steuerbegünstigte Zwecke" der Abgabenordnung.  
 (2) Zweck der Hochschulgruppe ist,
-   - Mitmenschen zu ermöglichen, kostenlos und mit geringer Hürde sich fortwährend und im Austausch mit anderen
+   - Menschen zu ermöglichen sich fortwährend mit geriner Hürde und im Austausch mit anderen
      mit der Gewaltfreien Kommunikation zu beschäftigen.  
 (3) Die Ziele der Hochschulgruppe, um diesen Zwecken zu dienen sind folgende:
    - Wir veranstalten Treffen, die sich thematisch mit der gewaltfreien Kommunikation auseinander setzen.
