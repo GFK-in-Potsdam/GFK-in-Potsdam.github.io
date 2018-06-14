@@ -7,27 +7,27 @@ Geschäftsjahr ist das Kalenderjahr.
 
 ## §2 Zweck und Ziele
 
-1. Der Verein verfolgt ausschließlich und unmittelbar gemeinnützige Zwecke im Sinne des Abschnitts
-   "Steuerbegünstigte Zwecke" der Abgabenordnung.
-2. Zweck der Hochschulgruppe ist,
+(1) Der Verein verfolgt ausschließlich und unmittelbar gemeinnützige Zwecke im Sinne des Abschnitts
+   "Steuerbegünstigte Zwecke" der Abgabenordnung.  
+(2) Zweck der Hochschulgruppe ist,
    - Mitmenschen zu ermöglichen, kostenlos und mit geringer Hürde sich fortwährend und im Austausch mit anderen
-     mit der Gewaltfreien Kommunikation zu beschäftigen.
-3. Die Ziele der Hochschulgruppe, um diesen Zwecken zu dienen sind folgende:
+     mit der Gewaltfreien Kommunikation zu beschäftigen.  
+(3) Die Ziele der Hochschulgruppe, um diesen Zwecken zu dienen sind folgende:
    - Wir veranstalten Treffen, die sich thematisch mit der gewaltfreien Kommunikation auseinander setzen.
 
 
 ## §3 Mitgliedschaft
 
-1. Mitglied kann jeder Angehörige der Brandenburgischen (Fach-) Hochschulen werden.
+(1) Mitglied kann jeder Angehörige der Brandenburgischen (Fach-) Hochschulen werden.
    Die Mitgliedschaft ist schriftlich oder mündlich beim Vorstand zu beantragen.
    Der Vorstand entscheidet über die Mitgliedschaft.
    Mit der Aufnahme erkennt das Mitglied die Satzung der Hochschulgruppe an.   
-2. Der Austritt eines Mitglieds erfolgt durch Tod, freiwilligen Austritt oder durch Ausschluss
-   aus der Hochschulgruppe.  
-3. Über den Ausschluss eines Mitglieds entscheidet die Mitgliederversammlung mit 2/3
+(2) Der Austritt eines Mitglieds erfolgt durch Tod, freiwilligen Austritt oder durch Ausschluss
+   aus der Hochschulgruppe.   
+(3) Über den Ausschluss eines Mitglieds entscheidet die Mitgliederversammlung mit 2/3
    Mehrheit.
-   Der Ausschluss ist dem Mitglied unter Angabe von Gründen mitzuteilen.   
-4. Der freiwillige Austritt aus der Hochschulgruppe ist jederzeit möglich.
+   Der Ausschluss ist dem Mitglied unter Angabe von Gründen mitzuteilen.     
+(4) Der freiwillige Austritt aus der Hochschulgruppe ist jederzeit möglich.
    Er kann formlos beim Vorstand beantragt werden. 
 
 ## §4 Organe
@@ -39,29 +39,29 @@ Organe des Vereins sind
 
 ## §5 Die Mitgliederversammlung
 
-1. Oberstes Organ ist die Mitgliederversammlung (MV).
+(1) Oberstes Organ ist die Mitgliederversammlung (MV).
    Die ordentliche MV tritt mindestens einmal jährlich zusammen.
    Die Einladung erfolgt schriftlich oder elektronisch unter Mitteilung
-   der Tagesordnung und unter Einhaltung einer Frist von einer Woche.
-2. Außerordentliche MV werden darüber hinaus unter Einhaltung einer
+   der Tagesordnung und unter Einhaltung einer Frist von einer Woche.  
+(2) Außerordentliche MV werden darüber hinaus unter Einhaltung einer
    einwöchigen Frist durch den Vorstand einberufen, wenn das Interesse
    der Hochschulgruppe es erfordert oder ein Fünftel der Mitglieder unter Angabe
    der Gründe die Einberufung schriftlich oder elektronisch verlangt.
    In letzterem Fall ist die MV innerhalb von drei Wochen nach
-   Antragseingang durchzuführen.
+   Antragseingang durchzuführen.  
    Die Einladung mit Tagesordnung erfolgt schriftlich oder elektronisch.
-3. Die MV ist, soweit die Satzung nicht andere Bestimmungen trifft, insbesondere zuständig für
+(3) Die MV ist, soweit die Satzung nicht andere Bestimmungen trifft, insbesondere zuständig für
    - die Genehmigung des Finanzplans; die Entgegennahme des Jahresberichts 
      und die Entlastung des Vorstands;
    - die Wahl und Abwahl der Mitglieder des Vorstands;
    - die  Beschlussfassung über Satzungsänderungen und die Auflösung des Vereins;
-   - die Bildung ständiger Arbeitsgruppen.
-4. Die MV beschließt mit einfacher Mehrheit der anwesenden Mitglieder.
+   - die Bildung ständiger Arbeitsgruppen.  
+(4) Die MV beschließt mit einfacher Mehrheit der anwesenden Mitglieder.
    Zur Änderung der Satzung ist eine Mehrheit von 2/3 der anwesenden Mitglieder,
-   zur Änderung des Vereinszwecks eine 2/3-Mehrheit aller stimmberechtigten Mitglieder notwendig.
-5. Die MV wird vom Vorstand geleitet, sofern die MV nichts anderes beschließt.
-   Von jeder MV wird ein Protokoll gefertigt, das die Versammlungsleitung unterzeichnet.
-6. Jedes Mitglied verfügt über eine Stimme.
+   zur Änderung des Vereinszwecks eine 2/3-Mehrheit aller stimmberechtigten Mitglieder notwendig.  
+(5) Die MV wird vom Vorstand geleitet, sofern die MV nichts anderes beschließt.
+   Von jeder MV wird ein Protokoll gefertigt, das die Versammlungsleitung unterzeichnet.  
+(6) Jedes Mitglied verfügt über eine Stimme.
    Ein auf der MV nicht anwesendes Mitglied kann sein Stimmrecht vorab schriftlich auf eine 
    Bevollmächtigte übertragen.
    Die schriftliche Vertretungsvollmacht ist der Versammlungsleitung auf der MV vorzulegen.
@@ -72,7 +72,10 @@ Organe des Vereins sind
 
 
 
-## $7 Beitragserhebung
+## $7 Finanzen 
+(1) Die Hochschulgruppe finanziert sich über freiwillige Spenden durch Mitglieder und
+Außenstehende.   
+(2) Die Finanzen werden vom Vorstand verwaltet. 
 
 
 
