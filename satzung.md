@@ -13,7 +13,7 @@ Geschäftsjahr ist das Kalenderjahr.
    3. die Haltung der Gewaltfreien Kommunikation an der Universität Potsdam zu fördern
   
 (2) Der Zweck der Verinigung wird vor allem durch folgende Aktivitäten verwirklicht:
-   1. Veranstaltung von Übungsgruppen zum Lernen und Üben der Gewaltfreien Kommunikation nach Marshall Rosenberg
+   1. Öffentliche Veranstaltung von Übungsgruppen zum Lernen und Üben der Gewaltfreien Kommunikation nach Marshall Rosenberg
 
 (3) Die Vereinigung legt all ihrem Handeln folgende Werte zu Grunde
 
