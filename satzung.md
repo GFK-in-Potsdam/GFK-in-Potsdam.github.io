@@ -9,19 +9,20 @@ Geschäftsjahr ist das Kalenderjahr.
 
 (1) Der Zweck der Vereinigung ist es
    1. Menschen zu ermöglichen über Gewaltfreie Kommunikation nach Marshall Rosenberg zu lernen
-   2. Menschen zu ermöglichen sich mit anderen interessierten zu vernetzen und auszutauschen
+   2. Menschen zu ermöglichen sich mit anderen Interessierten zu vernetzen und auszutauschen
    3. die Haltung der Gewaltfreien Kommunikation an der Universität Potsdam zu fördern
   
 (2) Der Zweck der Verinigung wird vor allem durch folgende Aktivitäten verwirklicht:
    1. Veranstaltung von Übungsgruppen zum Lernen und Üben der Gewaltfreien Kommunikation nach Marshall Rosenberg
 
-Der Verein verfolgt ausschließlich und unmittelbar gemeinnützige Zwecke im Sinne des Abschnitts
-   "Steuerbegünstigte Zwecke" der Abgabenordnung.  
-(2) Zweck der Hochschulgruppe ist,
-   - Menschen zu ermöglichen sich fortwährend mit geriner Hürde und im Austausch mit anderen
-     mit der Gewaltfreien Kommunikation zu beschäftigen.  
-(3) Die Ziele der Hochschulgruppe, um diesen Zwecken zu dienen sind folgende:
-   - Wir veranstalten Treffen, die sich thematisch mit der gewaltfreien Kommunikation auseinander setzen.
+(3) Die Vereinigung legt all ihrem Handeln folgende Werte zu Grunde
+
+   - Bewusstsein für gegenseitige Abhängigkeit
+   - Ermächtigung und Unterstützung aller Teilnehmer und Mitglieder
+   - Fürsorge für das größere Ganze und die Welt
+   - Vertrauen in die Fähigkeiten aller Teilnehmer und Mitglieder
+   - Die Bedürfnisse aller Teilnehmer und Mitglieder sind wichtig
+   - Eigenverantwortung
 
 
 ## §3 Mitgliedschaft
