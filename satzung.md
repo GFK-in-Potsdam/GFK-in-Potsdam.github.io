@@ -5,10 +5,15 @@
 Die Hochschulgruppe führt den Namen "Gewaltfreie Kommunikation Potsdam" und hat ihren Sitz in Potsdam.
 Geschäftsjahr ist das Kalenderjahr.
 
-## §2 Vision, Zweck, Verwirklichung des Zwecks und Werte
+## §2 Zweck, Verwirklichung des Zwecks und Werte
 
-(1) Die Vision der Vereinigung ist eine Welt, die ein Ort für jede und jeden ist.
-(2) Der Zweck der Vereinigung ist es zu einer solchen Wlt beizutragen.
+(1) Der Zweck der Vereinigung ist es
+   1. Menschen zu ermöglichen über Gewaltfreie Kommunikation nach Marshall Rosenberg zu lernen
+   2. Menschen zu ermöglichen sich mit anderen interessierten zu vernetzen und auszutauschen
+   3. die Haltung der Gewaltfreien Kommunikation an der Universität Potsdam zu fördern
+  
+(2) Der Zweck der Verinigung wird vor allem durch folgende Aktivitäten verwirklicht:
+   1. Veranstaltung von Übungsgruppen zum Lernen und Üben der Gewaltfreien Kommunikation nach Marshall Rosenberg
 
 Der Verein verfolgt ausschließlich und unmittelbar gemeinnützige Zwecke im Sinne des Abschnitts
    "Steuerbegünstigte Zwecke" der Abgabenordnung.  
