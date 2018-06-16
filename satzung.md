@@ -22,6 +22,7 @@ Geschäftsjahr ist das Kalenderjahr.
    - Fürsorge für das größere Ganze und die Welt
    - Vertrauen in die Fähigkeiten aller Teilnehmer und Mitglieder
    - Die Bedürfnisse aller Teilnehmer und Mitglieder sind wichtig
+   - Offenheit für Feedback
    - Eigenverantwortung
 
 
