@@ -1,4 +1,4 @@
-
+# Gewaltfreie Kommunikaton in Potsdam
 
 ## Hochschulgruppe für Gewaltfreie Kommunikation an der Uni Potsdam
 
