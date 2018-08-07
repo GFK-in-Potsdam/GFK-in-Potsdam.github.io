@@ -1,5 +1,5 @@
 ---
-title: "Satzung der Hochschulgruppe Gewaltfreie Kommunikation Potsdam"
+title: "Satzung"
 ---
 
 # Satzung
