@@ -2,8 +2,6 @@
 title: "Satzung"
 ---
 
-# Satzung
-
 ## §1 Name der Vereinigung, Sitz
 
 Die Hochschulgruppe führt den Namen "Gewaltfreie Kommunikation Potsdam" und hat ihren Sitz in Potsdam.
