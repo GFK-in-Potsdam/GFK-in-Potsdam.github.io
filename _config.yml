@@ -5,3 +5,4 @@ description: >
 theme: minima
 
 header_pages:
+  - satzung.md
