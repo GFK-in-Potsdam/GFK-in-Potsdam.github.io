@@ -3,7 +3,6 @@ title: "Gewaltfreie Kommunikation in Potsdam"
 layout: home
 ---
 
-# Gewaltfreie Kommunikaton in Potsdam
 
 ## Hochschulgruppe für Gewaltfreie Kommunikation an der Uni Potsdam
 
