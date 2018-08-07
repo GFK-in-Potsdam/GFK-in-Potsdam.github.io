@@ -6,3 +6,23 @@ theme: minima
 
 header_pages:
   - satzung.md
+  
+collections:
+  articles:
+    output: true
+  exercises:
+    output: true
+  
+defaults:
+  - scope:
+      path: ""
+      type: articles
+    values:
+      layout: page
+  - scope:
+      path: ""
+      type: my_collection
+    values:
+      layout: page
+      
+
