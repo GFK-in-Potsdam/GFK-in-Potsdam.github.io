@@ -1,8 +1,7 @@
 ---
-layout: archive
+layout: collection
 title: "Materialien"
 collection: articles
 permalink: /materials/
-taxonomy: category name
 entries_layout: grid
 ---
