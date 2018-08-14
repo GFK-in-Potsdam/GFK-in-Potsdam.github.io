@@ -1,5 +1,6 @@
 ---
 title: "Satzung"
+layout: single
 ---
 
 ## §1 Name der Vereinigung, Sitz
