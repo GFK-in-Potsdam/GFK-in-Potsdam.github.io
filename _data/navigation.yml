@@ -2,3 +2,9 @@ main:
   - title: "Satzung"
     url: /satzung.html/
     description: "Satzung der Hochschulgruppe Gewaltfreie Kommunikation Potsdam"
+
+mat:
+  - title: "Artikel"
+    children:
+      - title: "Die Scham-Starre in Disney's *Die Eiskönigin* Schmelzen"
+        url: /articled/shame_feeze
