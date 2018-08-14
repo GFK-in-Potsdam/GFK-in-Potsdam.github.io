@@ -1,5 +1,6 @@
 ---
 title: "Die Scham-Starre in Disney’s „Frozen/Die Eiskönigin“ schmelzen"
+tags: [feelings, shame, movie]
 ---
 
 
