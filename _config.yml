@@ -2,7 +2,7 @@ title: Gewaltfreie Kommunikation in Potsdam
 description: >
    Eine Seite für die Hochschulgruppe "Gewaltfreie Kommunikation in Potsdam".
    Mit ausführlichen Materialien für die Gestaltung von Übungsgruppentreffen.
-theme: minima
+remote_theme: "mmistakes/minimal-mistakes"
 
 header_pages:
   - satzung.md
