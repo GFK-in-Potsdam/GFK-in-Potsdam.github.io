@@ -1,6 +1,6 @@
 ---
 title: "Gewaltfreie Kommunikation in Potsdam"
-layout: home
+layout: splash
 ---
 
 
