@@ -33,7 +33,7 @@ defaults:
       path: ""
       type: articles
     values:
-      layout: page
+      layout: single
       read_time: true
   - scope:
       path: ""
