@@ -35,6 +35,7 @@ defaults:
     values:
       layout: single
       read_time: true
+      classes: [wide]
       sidebar:
         nav: "mat"
   - scope:
