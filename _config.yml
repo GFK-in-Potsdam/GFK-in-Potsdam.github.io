@@ -4,6 +4,9 @@ description: >
    Mit ausführlichen Materialien für die Gestaltung von Übungsgruppentreffen.
 remote_theme: "mmistakes/minimal-mistakes"
 
+minimal_mistakes_skin: "sunrise" # "default" "air", "aqua", "contrast", "dark", "dirt", "neon", "mint", "plum" 
+
+
 header_pages:
   - satzung.md
   
