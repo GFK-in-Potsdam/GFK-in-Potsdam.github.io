@@ -1,5 +1,5 @@
 ---
-layout: collection
+layout: tags
 title: "Artikel"
 collection: articles
 permalink: /articles/
