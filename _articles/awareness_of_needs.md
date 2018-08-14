@@ -1,5 +1,5 @@
 ---
-
+title: "Bewusstsein über Bedürfnisse"
 ---
 
 ### *Embracing Life*
@@ -13,10 +13,10 @@ auch wenn sie sich darüber nicht bewusst sind.*
 Was ich als mein Hauptziel für mich sehe ist, in der Lage zu sein, frei zu entscheiden wie ich auf jeden 
 Moment im Leben reagieren möchte.
 Je mehr ich auf dieser Reise war, desto klarer wird mir, dass die essentielle Qualität dieser Freiheit zu wissen ist -  
-sowohl auf hoher Ebene als auch von Moment zu Moment - was mir wichtig ist und in der Lage zu sein das Handeln zu 
+sowohl auf hoher Ebene als auch von Moment zu Moment - was mir wichtig ist und in der Lage zu sein mein Handeln zu 
 wählen ohne Angst vor Konsequenzen zu haben.*
 
-*Jenseits von dem zu wissen was wir brauchen - von Moment zu Moment - und mit innerer Integrität zu handeln, 
+*Jenseits von dem, zu wissen was wir brauchen - von Moment zu Moment - und mit innerer Integrität zu handeln, 
 bedeutet das Leben zu umarmen auch, alles uns mögliche zu tun, um unsere Seele zu nähren, Nahrung zu bieten 
 um unsere Wiederstandskraft zu unterstützen, damit wir weiterhin mit Freude und von ganzem Herzen das tun 
 können, was wir tun.*
@@ -25,5 +25,5 @@ können, was wir tun.*
 Die Kräfte, die gegen die Kultivierung eines Bewusstseins über Bedürfnisse arbeiten, sind seit einigen 
 tausend Jahren in den meisten Kulturen der Welt tief verwurzelt.
 Die Reise, um unsere Fähigkeit zurück zu erlangen uns mit unseren Bedürfnissen zu beschäftigen und aus ihnen heraus zu leben, 
-steht echten und bestädigen Hindernissen gegenüber.
+steht echten und beständigen Hindernissen gegenüber.
 Trotz alledem fühle ich mich sicher und zuversichtlich, basierend auf meiner eigenen Erfahrung
