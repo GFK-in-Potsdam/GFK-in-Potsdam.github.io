@@ -35,6 +35,8 @@ defaults:
     values:
       layout: single
       read_time: true
+      sidebar:
+        nav: "mat"
   - scope:
       path: ""
       type: exercises
