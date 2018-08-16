@@ -32,3 +32,7 @@ Trotz alledem fühle ich mich sicher und zuversichtlich, basierend auf meiner Er
 Das Ziel unsere Bedürfnisse zu umarmen lässt uns mehr im Widerspruch mit der Kultur stehen, als die Meisterung unserer Emotionen dies tut. Schließlich ist eine ganze Therapieindustrie schon lange genug zugegen, um das Ziel "mit den eigenen Gefühlen in Kontakt sein" komplett akzeptabel zu machen. Bedürfnisse hingegen werden weiterhin mit Schwäche, Abhängigkeit und Mangel auf der einen und mit Egoismus auf der anderen Seite gleichgesetzt. Wie ich schon früher erläutert habe, ist Bedürfnisse zu haben eine Schlüsselquelle für Scham für viele von uns. Anstatt unsere fundamentale menschliche Verletzlichkeit zu akzeptieren lernen wir - oft mit Hohen Kosten an uns Selbst - unsere Bedürfnisse zu ignorieren, zu verleugnen, zu überschreiben oder auf eine andere Art und Weise zu unterdrücken.
 
 Wir müssen - um zu wissen, was unsere Bedürfnisse sind, geschweige denn sie zu umarmen und uns zu eigen zu machen - diese Hindernisse überwinden, wenn die Kultur um uns herum fortfährt die Wichtigkeit von Bedürfnissen herunterzuspielen.
+
+
+**Veröffentlicht im Original auf Englisch unter CC BY-NC-ND 3.0 ([https://creativecommons.org/licenses/by-nc-nd/3.0/](https://creativecommons.org/licenses/by-nc-nd/3.0/)) in dem Buch "Spinning Threads of Radical Aliveness" von Miki Kashtan ([http://thefearlessheart.org/store/spinning/](http://thefearlessheart.org/store/spinning/)).  
+Erlaubnis zur Übersetzung von der Autorin erteilt.**
