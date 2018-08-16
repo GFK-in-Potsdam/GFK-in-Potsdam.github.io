@@ -26,11 +26,20 @@ Die Kräfte, die gegen die Kultivierung eines Bewusstseins über Bedürfnisse ar
 tausend Jahren in den meisten Kulturen der Welt tief verwurzelt.
 Die Reise, um unsere Fähigkeit zurück zu erlangen uns mit unseren Bedürfnissen zu beschäftigen und aus ihnen heraus zu leben, 
 steht echten und beständigen Hindernissen gegenüber.
-Trotz alledem fühle ich mich sicher und zuversichtlich, basierend auf meiner Erfahrung mit mir selbst und aus der Arbeit mit anderen Menschen, dass wir uns auf größere und größere Fähigkeiten in diesem Bereich zubewegen können. Wenn ich mich zum Beispiel selbst betrachte, hatte ich, als ich die Reise begonnen habe, die meiste Zeit keine Ahnung davon, was ich in jedem Moment wollte. Die Frage an sich wäre mir merkwürdig vorgekommen. Jetzt kann ich mich kaum an eine Zeit erinnern, zu der ich nicht in der Lage wäre sofort zu wissen, was mir wichtig ist. Ich finde es oft immer noch herausfordernd die Verbindung zu meinen Bedürfnissen in Handlungen zu übersetzen, die meine Bedürfnisse vollständig würdigen. Ich vertraue dem Prozess genug, um zu erahnen, dass meine Fähigkeiten in dieser Richtung weiterwachsen werden. Inzwischen habe ich so viel Sinn für Freiheit und Selbst-Akzeptanz zurückerlangt, dass mein Leben dramatisch anders ist, als ich mich erinnere, dass es noch vor nur ein paar Jahren war.
+Trotz alledem fühle ich mich sicher und zuversichtlich, basierend auf meiner Erfahrung mit mir selbst und aus der Arbeit mit anderen Menschen, dass wir uns auf größere und größere Fähigkeiten in diesem Bereich zubewegen können.
+Wenn ich mich zum Beispiel selbst betrachte, hatte ich, als ich die Reise begonnen habe, die meiste Zeit keine Ahnung davon, was ich in jedem Moment wollte.
+Die Frage an sich wäre mir merkwürdig vorgekommen.
+Jetzt kann ich mich kaum an eine Zeit erinnern, zu der ich nicht in der Lage wäre sofort zu wissen, was mir wichtig ist.
+Ich finde es oft immer noch herausfordernd die Verbindung zu meinen Bedürfnissen in Handlungen zu übersetzen, die meine Bedürfnisse vollständig würdigen.
+Ich vertraue dem Prozess genug, um zu erahnen, dass meine Fähigkeiten in dieser Richtung weiterwachsen werden.
+Inzwischen habe ich so viel Sinn für Freiheit und Selbst-Akzeptanz zurückerlangt, dass mein Leben dramatisch anders ist, als ich mich erinnere, dass es noch vor nur ein paar Jahren war.
 
 ## Hindernisse beim Verbinden mit Bedürfnissen Überwinden
-Das Ziel unsere Bedürfnisse zu umarmen lässt uns mehr im Widerspruch mit der Kultur stehen, als die Meisterung unserer Emotionen dies tut. Schließlich ist eine ganze Therapieindustrie schon lange genug zugegen, um das Ziel "mit den eigenen Gefühlen in Kontakt sein" komplett akzeptabel zu machen. Bedürfnisse hingegen werden weiterhin mit Schwäche, Abhängigkeit und Mangel auf der einen und mit Egoismus auf der anderen Seite gleichgesetzt. Wie ich schon früher erläutert habe, ist Bedürfnisse zu haben eine Schlüsselquelle für Scham für viele von uns. Anstatt unsere fundamentale menschliche Verletzlichkeit zu akzeptieren, lernen wir - oft mit Hohen Kosten an uns Selbst - unsere Bedürfnisse zu ignorieren, zu verleugnen, zu überschreiben oder auf eine andere Art und Weise zu unterdrücken.
-
+Das Ziel unsere Bedürfnisse zu umarmen lässt uns mehr im Widerspruch mit der Kultur stehen, als die Meisterung unserer Emotionen dies tut.
+Schließlich ist eine ganze Therapieindustrie schon lange genug zugegen, um das Ziel "mit den eigenen Gefühlen in Kontakt sein" komplett akzeptabel zu machen.
+Bedürfnisse hingegen werden weiterhin mit Schwäche, Abhängigkeit und Mangel auf der einen und mit Egoismus auf der anderen Seite gleichgesetzt.
+Wie ich schon früher erläutert habe, ist Bedürfnisse zu haben eine Schlüsselquelle für Scham für viele von uns.
+Anstatt unsere fundamentale menschliche Verletzlichkeit zu akzeptieren, lernen wir - oft mit Hohen Kosten an uns Selbst - unsere Bedürfnisse zu ignorieren, zu verleugnen, zu überschreiben oder auf eine andere Art und Weise zu unterdrücken.
 
 Wir müssen - um zu wissen, was unsere Bedürfnisse sind, oder gar sie zu umarmen und uns zu eigen zu machen - diese Hindernisse überwinden, wenn die Kultur um uns herum fortfährt die Wichtigkeit von Bedürfnissen herunterzuspielen.
 
