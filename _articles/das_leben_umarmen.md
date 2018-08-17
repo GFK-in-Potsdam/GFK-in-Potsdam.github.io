@@ -43,6 +43,6 @@ Anstatt unsere fundamentale menschliche Verletzlichkeit zu akzeptieren, lernen w
 
 Wir müssen - um zu wissen, was unsere Bedürfnisse sind, oder gar sie zu umarmen und uns zu eigen zu machen - diese Hindernisse überwinden, wenn die Kultur um uns herum fortfährt die Wichtigkeit von Bedürfnissen herunterzuspielen.
 
-**Veröffentlicht im Original auf Englisch unter CC BY-NC-ND 3.0 ([https://creativecommons.org/licenses/by-nc-nd/3.0/](https://creativecommons.org/licenses/by-nc-nd/3.0/)) in dem Buch "Spinning Threads of Radical Aliveness" von Miki Kashtan ([http://thefearlessheart.org/store/spinning/](http://thefearlessheart.org/store/spinning/)).  
+**Veröffentlicht im Original auf Englisch unter CC BY-NC-ND 3.0 ([https://creativecommons.org/licenses/by-nc-nd/3.0/](https://creativecommons.org/licenses/by-nc-nd/3.0/)) in dem Buch "Spinning Threads of Radical Aliveness" von Miki Kashtan ([http://thefearlessheart.org/store/spinning/](http://thefearlessheart.org/store/spinning/)) im Jahr 2014.  
 Erlaubnis zur Übersetzung von der Autorin erteilt.**
 
