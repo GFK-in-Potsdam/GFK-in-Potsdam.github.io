@@ -26,7 +26,7 @@ Die Kräfte, die gegen die Kultivierung eines Bewusstseins über Bedürfnisse ar
 tausend Jahren in den meisten Kulturen der Welt tief verwurzelt.
 Die Reise, um unsere Fähigkeit zurück zu erlangen uns mit unseren Bedürfnissen zu beschäftigen und aus ihnen heraus zu leben, 
 steht echten und beständigen Hindernissen gegenüber.
-Trotz alledem fühle ich mich sicher und zuversichtlich, basierend auf meiner Erfahrung mit mir selbst und aus der Arbeit mit Menschen, dass wir uns auf größere und größere Fähigkeiten in diesem Bereich zubewegen können.
+Trotz alledem fühle ich mich zuversichtlich und optimistisch, basierend auf meiner Erfahrung mit mir selbst und aus der Arbeit mit Menschen, dass wir uns auf größere und größere Fähigkeiten in diesem Bereich zubewegen können.
 Wenn ich mich zum Beispiel selbst betrachte, hatte ich, als ich die Reise begonnen habe, die meiste Zeit keine Ahnung davon, was ich in jedem Moment wollte.
 Die Frage an sich wäre mir merkwürdig vorgekommen.
 Jetzt kann ich mich kaum an eine Zeit erinnern, zu der ich nicht in der Lage wäre sofort zu wissen, was mir wichtig ist.
