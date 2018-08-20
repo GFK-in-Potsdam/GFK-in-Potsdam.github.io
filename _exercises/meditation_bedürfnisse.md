@@ -7,7 +7,7 @@ tags: [Bedürfnisse, Meditation]
 Schau dir die Bedürfnisliste an und suche dir ein Bedürfnis aus, das dich gerade anspricht.
 Sobald du eines gefunden hast, suche dir einen Platz im Raum. Du brauchst platz um einen kleinen Schritt nach vorne und nach hinten gehen zu können.
 
-Wenn du magst, schließe deine Augen. Eine Person wird nun eine Meditation anleiten, in der es darum geht, sich mit diesem Bedürfnis zu verbinden. 
+Wenn du magst, schließe deine Augen. Eine Person wird nun eine Meditation anleiten, in der es darum geht, sich mit diesem Bedürfnis in seiner Fülle zu verbinden. 
 
 ## Meditation
 Das könnte ungefähr so klingen:  
@@ -17,7 +17,7 @@ Spüre, wie das Ein- und Ausatmen deinen Körper verändert.*
 
 *Denke nun an das Bedürfnis, das du dir ausgewählt hast. Mache einen Schritt zurück und stell dir vor, dass dieses Bedürfnis nicht erfüllt ist. Was passiert in deinem Körper? Was spürst du?*
 
-*Mache nun wieder einen kleinen Schritt nach vorne zur neutralen position und spüre nach, was weiterhin in deinem Körper passiert.*
+*Mache nun wieder einen kleinen Schritt nach vorne zur neutralen Position und spüre nach, was weiterhin in deinem Körper passiert.*
 
 *Mache nun einen kleinen Schritt nach vorne und stelle dir vor, dass das Bedürfnis erfüllt ist. Wie fühlt sich das in deinem Körper an? Wo spürst du etwas und was?*
 
