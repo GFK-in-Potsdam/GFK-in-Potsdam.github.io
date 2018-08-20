@@ -4,12 +4,12 @@ layout: archive
 
 {{ content }}
 
-<h2> {{page.collection1.label}} </h2>
+<h2> {{ page.collection1.label }} </h2>
 <div class="entries-{{ page.entries_layout }}">
   {% include documents-collection.html collection=page.collection1 sort_by=page.sort_by sort_order=page.sort_order type=page.entries_layout %}
 </div>
 
-<h2> {{page.collection2.label}} </h2>
+<h2> {{ page.collection2.label }} </h2>
 <div class="entries-{{ page.entries_layout }}">
   {% include documents-collection.html collection=page.collection2 sort_by=page.sort_by sort_order=page.sort_order type=page.entries_layout %}
 </div>
