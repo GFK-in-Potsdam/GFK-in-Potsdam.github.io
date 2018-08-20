@@ -42,6 +42,10 @@ defaults:
       path: ""
       type: exercises
     values:
-      layout: page
+      layout: single
+      read_time: true
+      toc: true
+      sidebar:
+        nav: "mat"
       
 
