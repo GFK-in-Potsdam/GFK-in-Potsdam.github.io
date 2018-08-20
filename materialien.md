@@ -1,8 +1,7 @@
 ---
-layout: twocollections
+layout: collections
 title: "Materialien"
-collection1: articles
-collection2: exercises
+collection: [articles, exercises]
 permalink: /materials/
 entries_layout: grid
 ---
