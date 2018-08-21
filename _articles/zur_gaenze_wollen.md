@@ -44,11 +44,11 @@ Sich ein Bedürfnis zu eigen zu machen, bedeutet ein entspanntes Wohlgefühl und
 Wenn wir uns ein Bedürfnis zu Eigen machen, unternehmen wir keinen Versuch - so klein er auch sein mag - Distanz zwischen uns
 und dem Bedürfnis aufzubauen, so zu tun, als hätten wir es nicht, unglimpflich mit uns zu sein, dafür, dass wir es haben, oder
 uns zu sagen, wir "sollten" es nicht haben.
-Wenn wir uns ein Bedürfnis zu Eigen machen hegen wir tatsächlich keine negativen Urteile über uns selbst, selbst wenn wir die Handlungen, die wir unternehmen um das Bedürfnis zu erfüllen, nicht mögen.<sup>[45](#judgements)</sup)
+Wenn wir uns ein Bedürfnis zu Eigen machen hegen wir tatsächlich keine negativen Urteile über uns selbst, selbst wenn wir die Handlungen, die wir unternehmen um das Bedürfnis zu erfüllen, nicht mögen.<sup>[45](#judgements)</sup>
 
 
 
-<div style="text-align: justify;">
+<div style="text-align: justify; font-size: smaller;">
 <a name="attachment">1</a>: Anmerkung der Übersetzung: Im Englischen Original wird im Titel und auch hier das 
 Wort "attachment" verwendet.<br>  
 <a name="judgements">45</a>: Fast jeder sieht intuitiv, weshalb negative Urteile, über uns selbst oder andere, Mitgefühl und Verbindung beeinträchtigen.
