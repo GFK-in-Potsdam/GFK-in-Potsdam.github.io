@@ -157,6 +157,7 @@ Dann gibt es keine "Anlehnung" mehr, weil wir in der Lage sind innerlich so kraf
 anderer sehen können, wir können ihr "ja" hinter ihrem "nein" hören, und wir können uns sowohl mit ihrem als auch mit unserem Bedürfnis verbinden.
 Solche Freiheit erlaubt uns auch andere Begrenzungen auf dem Weg zu vollständiger Befreiung zu überwinden.
 
+
 --------------
 <div style="text-align: justify; font-size: smaller;">
 <a name="attachment">1</a> Anmerkung der Übersetzung: Im Englischen Original wird im Titel und auch hier das 
@@ -167,3 +168,6 @@ Das passiert sowohl aufgrund der statischen Natur der Urteile im Vergleich zu be
 des Vergleichs mit dem Negativen, den sie implizit enthalten.<br>
 <a name="practice">46</a> Diese Notizen sind nicht als ein Ersatz für das Lernen aus Erfahrung gedacht, das für die Praxis und die Integration nötig ist. 
 </div>
+
+**Veröffentlicht im Original auf Englisch unter CC BY-NC-ND 3.0 ([https://creativecommons.org/licenses/by-nc-nd/3.0/](https://creativecommons.org/licenses/by-nc-nd/3.0/)) in dem Buch "Spinning Threads of Radical Aliveness" von Miki Kashtan ([http://thefearlessheart.org/store/spinning/](http://thefearlessheart.org/store/spinning/)) im Jahr 2014.  
+Erlaubnis zur Übersetzung von der Autorin erteilt.**
