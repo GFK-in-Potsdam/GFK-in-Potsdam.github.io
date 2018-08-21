@@ -7,7 +7,7 @@ tags: [Bedürfnisse]
 <p style="text-align: right;">- The Buddha</p> 
 
 *Der Talmud sagt uns, dass in der Welt, die kommen wird, jeder berufen sein wird die Wünsche, die sie in dieser Welt hätten erfüllen können, sich aber entschieden dies nicht zu tun, zu erfassen und mit ihnen abzuschließen. Die Dinge die, wir uns wünschen - die Wünsche an sich - sind heilig. Wer hat sie in unsere Herzen gepflanzt, wenn nicht Gott? Aber wir wurden gelehrt uns für das zu schämen, was wir wollen; unsere Wünsche werden entsetzlich verzerrt und sorgen dafür, dass wir schrecklich verletzende Dinge tun.*
-<p style="text-align: right;">- Alan Lew, *This is Real and You are Completely Unprepared*</p>
+<p style="text-align: right;">- Alan Lew, This is Real and You are Completely Unprepared</p>
 
 Eines der Schlüsselhindernisse dazu, Bewusstsein über unsere Bedürfnisse zu erlangen und sie willkommen zu heißen, ist die Angst von unseren Bedürfnissen verschlungen zu werden. 
 Insbesondere in einer vielzahl spirituelle Traditionen ist die Idee der Nicht-Verbissenheit<sup>[1](#attachment)</sup> 
