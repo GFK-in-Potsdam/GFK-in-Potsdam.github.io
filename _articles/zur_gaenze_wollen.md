@@ -9,7 +9,7 @@ tags: [Bedürfnisse]
 *Der Talmud sagt uns, dass in der Welt, die kommen wird, jeder berufen sein wird die Wünsche, die sie in dieser Welt hätten erfüllen können, sich aber entschieden dies nicht zu tun, zu erfassen und mit ihnen abzuschließen. Die Dinge die, wir uns wünschen - die Wünsche an sich - sind heilig. Wer hat sie in unsere Herzen gepflanzt, wenn nicht Gott? Aber wir wurden gelehrt uns für das zu schämen, was wir wollen; unsere Wünsche werden entsetzlich verzerrt und sorgen dafür, dass wir schrecklich verletzende Dinge tun.*
 <p style="text-align: right;">- Alan Lew, *This is Real and You are Completely Unprepared*</p>
 
-Eines der Schlüsselhindernisse dazu, Bewusstsein über unsere Bedürfnisse zu erlangen und sie zu umarmen, ist die Angst von unseren Bedürfnissen verschlungen zu werden. 
+Eines der Schlüsselhindernisse dazu, Bewusstsein über unsere Bedürfnisse zu erlangen und sie willkommen zu heißen, ist die Angst von unseren Bedürfnissen verschlungen zu werden. 
 Insbesondere in einer vielzahl spirituelle Traditionen ist die Idee der Nicht-Verbissenheit<sup>[1](#attachment)</sup> 
 so prominent geworden, dass die Idee, unsere Bedürfnisse zu kultivieren als einen Pfad zur Freiheit zu betrachten, bestenfalls merkwürdig erscheint. 
 
@@ -17,7 +17,7 @@ Aber was braucht es, um Verbissenheit loszulassen? Was genau bedeutet das und wa
 Ist das Wollen loszulassen der einzige Weg um Verbissenheit loszulassen, oder ist es möglich zu wollen, was wir wollen, 
 mit voller Leidenschaft, und gleichzeitig aufrichtig entspannt darüber zu sein, ob wir bekommen, was wir wollen?
 
-Die größte Herausforderung tritt auf, wenn wir Spannung zwischen dem, was wir wollen und dem, was ist oder möglich erscheint, erleben.
+Die Hauptherausforderung tritt auf, wenn wir Spannung zwischen dem, was wir wollen und dem, was ist oder möglich erscheint, erleben.
 Dann reagieren wir oft in einer von zwei Weisen.
 Äußerlich, mögen wir versuchen das, was ist, mit Kaft dazu zu bewegen mit dem in Einklang zu kommen, was wir wollen; 
 durch reine Zwangsausübung und Drohungen, oder durch die Benutzung subtilerer Formen der Forderung.
@@ -35,7 +35,7 @@ Wir können genauso wenig unsere Bedürfnisse abstellen, wie wir es abstellen k�
 Wir können uns nur aussuchen, wie wir unsere Beziehung zu ihnen gestalten.
 Wenn wir unsere Bedürfnisse "bekämpfen", dann ist es wahrscheinlicher, dass sie uns unbewusst "steuern" und unsere Entscheidungsfreiheit und Macht verringern.
 Wenn wir unsere Bedürfnisse uns zu Eigen machen und sie vollständig als Kernausdruck unserer Menschlichkeit und Lebendigkeit 
-umarmen, finden wir mehr Selbst-Verbindung und entwickeln die Freiheit und Stärke uns um unsere eigenen Bedürfnisse so gut wie um die anderer zu kümmern.
+willkommen heißen, finden wir mehr Selbst-Verbindung und entwickeln die Freiheit und Stärke uns um unsere eigenen Bedürfnisse so gut wie um die anderer zu kümmern.
 
 ## Uns Unsere Bedürfnisse zu Eigen Machen
 Ein Teil von dem, worum es hier geht, ist der Unterschied zwischen ein Bedürfnis haben, was eine Tatsache des Lebens ist, 
@@ -49,11 +49,11 @@ Wenn wir uns ein Bedürfnis zu Eigen machen hegen wir tatsächlich keine negativ
 Vollständige innere Freiheit zu erreichen ist eine Einladung unsere Vorstellung von Bedürfnissen neu zu definieren und durch die Schichten von Scham hindurchzulaufen. 
 Scham darüber Bedürfnisse zuhaben, darüber ein bestimmtes Bedürfnis zu haben, und darüber womöglich zu viel oder zu wenig 
 von diesem Bedürfnis in Bezug daruf, was wir haben "sollten", zu haben.
-Nur dann können wir in Frieden mit was auch immer für Bedürfnisse wir in genau der From, in der wir sie haben, haben, leben.
+Nur dann können wir in Frieden mit was auch immer für Bedürfnisse wir in genau der From haben, in der wir sie haben, leben.
 Denke darüber nach: Wenn du nicht du sein wirst, wer wird es?
 
 Diese neue Verbindung mit uns selbst fürt dann zu beinare purer Magie:
-während wir unsere vollständige Menschlichtkeit aufdecken und umarmen, entdecken wir, dass unsere Bedürfnisse auch einen Weg bieten, wie wir uns mit Menschen verbinden können.
+während wir unsere vollständige Menschlichtkeit aufdecken und willkommen heißen, entdecken wir, dass unsere Bedürfnisse auch einen Weg bieten, wie wir uns mit Menschen verbinden können.
 Weil alle Menschen ohne Ausnahme den selben Satz grundlegender Bedürfnisse haben, haben wir, wann immer wir ein Bedürfnis
 erleben, die Möglichkeit mit dem Rest der Menschheit vereint zu sein.
 Die Erfahrung das Bedürfnis an sich zu haben ist uns allen gemein und gleich, selbst wenn wir unterschiedliche Strategien wählen, um sie zu erfüllen.
@@ -71,7 +71,37 @@ Die Talmudischen Rabbis sagten: "Mehr als das Kalb möchte saugen, die Kuh möch
 Wir kennen alle die tiefe Befriedigung, die wir erfahren, wenn wir geben, ohne irgendetwas als Gegenleistung zu erwarten, 
 wenn wir Bedürftige unterstützen und nähren, wenn wir unsere Träume für die Welt willkommen heißen und 
 wenn wir auf einen Zweck hinarbeiten, der größer ist als wir selbst.
-Fürsorge und Geben sind tiefe, elementare menschliche Bedürfnisse, die unsere getrennte, 
+Fürsorge und Geben sind tiefe, elementare menschliche Bedürfnisse, die unsere getrennte, individualisierte Existenz überwinden, selbst während sie individuelle menschliche Bedürfnisse sind.
+
+Hüte dich jedoch vor der "geheimen Hierarchie" von Bedürfnissen. Wahre Selbst-Akzeptanz heist die ganze Bandbreite und Vielfalt unserer Bedürfnisse willkommen, die personlichen und solche, die mehr darauf ausgerichtet sind zu anderen beizutragen. 
+Keine sind mehr "okay" als andere. 
+Alle von ihnen sind gleichermaßen menschlich.
+
+## Unsere Bedürfnisse Annehmen
+
+Die schwierigste Herausforderung ist es, unsere Herzen für vollständige Selbst-Akzeptanz zu öffnen, wenn wir die Strategien und 
+Verhaltensweisen, die wir verwenden um unsere Bedürfnisse zu erfüllen, nicht mögen.
+In diesen Momenten wenden wir, in einem unbewussten Versuch uns wieder an unseren Werten auszurichten und für uns selbst wieder 
+annehmbarer zu werden, oft Selbst-Urteile an.
+Der tragische Fehler ist, wenn wir das Verhalten verurteilen, schlagen wir darin fehl zu erkennen, dass das Verhalten nur der
+Versuch, ein Weg ein Bedürfnis zu erfüllen ist, nicht "wer wir sind". 
+Wenn ich mich selbst zum Beispiel als "faul" betrachte, wenn ich bestimmte Aufgaben im Haushalt nicht mache, verliere ich die 
+Sicht für meine eigene Menschlichkeit, die sich in dem Moment als mein Bedürfnis für Bequemlichkeit (in der Form von
+"Faulheit") manifestiert.
+
+Anstatt den Raum zum Existieren für das Bedürfnis zu erzeugen, und dann die Entstehung eines neuen Weges, es zu erfüllen, 
+zu erlauben, bekämpfen wir die Strategie.
+Wir versuchen oft unser Verhalten zu verändern, anstatt seine menschlichen Wurzeln kennen zu lernen und willkommen zu heißen.
+Und wir tun das unter Benutzung gewohnheitsmäßiger Taktiken wie dem Senden von "sollte" und "muss" Nachrichten und dem halten 
+negativer Selbst-Urteile über uns selbst.
+Trauriger Weise unterstützen uns diese Taktiken selten darin Veränderungen in unserem Verhalten zu erwirken.
+Wir glauben unseren eigenen Urteilen zumeist, trennen uns von der Quelle des Lebens in uns, und haben weniger und weniger
+Zugang zu freier Entscheidung darüber, wie wir handeln und reagieren.
+Wenn wir uns stattdessen für die Bedürfnisse öffnen, die uns zu den Strategien, die nicht funktionieren, geführt haben, und
+sie vollständig annhemen, erzeugen wir eine Möglichkeit Strategien zu finden, die diese Bedürfnisse nicht auf Kosten unserer 
+Selbst-Verbindung oder anderer Bedürfnisse erfüllen.
+
+
 
 --------------
 <div style="text-align: justify; font-size: smaller;">
