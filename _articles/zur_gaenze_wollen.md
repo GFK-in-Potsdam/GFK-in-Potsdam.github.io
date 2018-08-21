@@ -69,7 +69,7 @@ Auf innere Freiheit und vollständige Akzeptanz unserer Menschlichkeit zu zuarbe
 Bedürfnissen als äquivalent zu begrenztem Selbstinteresse hinaus und lädt uns ein, neu zu definieren und zu erweitern, was wir mit Bedürfnis meinen, um unsere Leidenschaften und Visionen für die Welt mit einzuschließen.
 Die Talmudischen Rabbis sagten: "Mehr als das Kalb möchte saugen, die Kuh möchte säugen."
 Wir kennen alle die tiefe Befriedigung, die wir erfahren, wenn wir geben, ohne irgendetwas als Gegenleistung zu erwarten, 
-wenn wir Bedürftige unterstützen und nähren, wenn wir unsere Träume für die Welt willkommen heißen und 
+wenn wir jene in Not unterstützen und nähren, wenn wir unsere Träume für die Welt willkommen heißen und 
 wenn wir auf einen Zweck hinarbeiten, der größer ist als wir selbst.
 Fürsorge und Geben sind tiefe, elementare menschliche Bedürfnisse, die unsere getrennte, individualisierte Existenz überwinden, selbst während sie individuelle menschliche Bedürfnisse sind.
 
@@ -101,14 +101,69 @@ Wenn wir uns stattdessen für die Bedürfnisse öffnen, die uns zu den Strategie
 sie vollständig annhemen, erzeugen wir eine Möglichkeit Strategien zu finden, die diese Bedürfnisse nicht auf Kosten unserer 
 Selbst-Verbindung oder anderer Bedürfnisse erfüllen.
 
+## Leiden Umwandeln
+Zur Gänze Wollen ohne Verbissenheit verlangt von uns uns in zwei Richtungen zu dehnen: auf das Wollen hinzu und auf Nicht-Verbissenheit hinzu.
+Verbissenheit loslassen bedeutet schlussendlich zunsere Beziehung zur Erfahrung des Wollens zu verändern. 
+Es gibt eine Art des Wollens, die zusammenziehend und ergreifend ist, in welcher es darum geht zu kommen, um dem Leben etwas wegzunehmen.
+Und es gibt eine Art des Wollens, die ausdehnend und entspannt ist, in der es darum geht vorwärts zu gehen, um dem Leben zu begegnen.
+Ein Wandel vom ersten zum letzteren ist, was es möglich macht gelassen im Wollen zu verweilen.
+Wenn wir das Wollen sein lassen, kkönnen wir uns selbst als lebendiger erfahren, unabhängig vom Ergebnis.
 
+Der erste Schritt zum Leben ohne Verbissenheit, ist eine tief eingeschliffene Gewohnheit, unsere bevorzugte Strategie nicht
+von unserem Bedürfnis unterscheiden zu können, zu überwinden.
+Wenn wir es schaffen, eine bestimmte Strategie als das Ergebnis loszulassen, können wir meistens mehr Optionen in Form einer Vielfalt von Strategien sehen, um unsere Bedürfnisse zu erfüllen.
+Es wird dadurch wahrscheinlicher, dass wir auch das bekommen, was wir wollen.
+Und selbst wenn nicht, können wir immer noch das Loslassen der Verbissenheit spüren, bei dem es nicht um Aufgeben oder Zusammenziehen geht.
+Stattdessen geht es um Ausdehnung und befreiung, weil wir nicht länger dadurch beschränkt sind, nur eine Möglichkeit zu haben.
+
+Der nächste Schritt ist, die Erfahrung des Bedürfnisses komplett auszufüllen ohne die fast unsichtbare aber sehr starke Verbissenheit, dass es überhaupt erfüllt wird.
+Das mag verwirrend erscheinen.
+Ist nicht schließlich der Wunsch, ein Bedürfnis erfüllt zu haben, der eigentliche Kern dessen, ein Bedürfnis zu haben?
+Haben wir nicht gerade gelernt zu wollen?
+Was nun?
+
+Diese Verwirrung ist das Herz des Paradoxon der Nicht-Verbissenheit.
+Wollen und Verbissenheit sind nicht das selbe.
+Nicht-Verbissenheit heißt nicht aufzugeben, das zu wollen, was wir wollen.
+Es heißt nur die Verbissenheit aufzugeben, dass wir das bekommen, was wir wollen.
+
+Sich darüber bewusst zu werden, welche Bedürfnisse für uns gerade aktuell sind, ist der erste Schritt unsere Verbissenheit, sie erfüllt zubekommen, loszulassen.
+Der nächste Schritt Verbissenheit loszulassen, ist zu lernen einfach mit dem Bedürfnis präsent zu sein, all unsere Geschichten über dieses Bedürfnis loszulassen.
+Das ist, wo unsere Bedürfnisse willkommen zu heißen auf seine eigene Art zu einer spirituellen Paxis wird, eine Form der Meditation.
+
+### Vom Befürnis als "Mangel" zum Bedürfnis als "Leben"
+Wenn Menschen die Praxis sich mit Bedürfnissen zu verbinden beginnen, verbinden sie sich meist mit dem unerfüllten Aspekt des Bedürfnisses als mit dem Bedürfnis an sich.
+Diese Gewohnheit verstärkt die Tendenz uns von unseren Bedürfnissen zu distanzieren, um die ungewollte Assoziation mit "Bedürftigkeit" zu vermeiden.
+Stattdessen können wir daran arbeiten, unsere Fähigkeit zu vergrößern, reine Bedürfnisse zu erleben, ohne irgendeine Verbindung dazu, ob sie erfüllt werden können oder nicht, nur als den Wunsch an sich.<sup>[46](#practice)</sup>
+
+Wenn wir über das Wollen lernen wollen und die Bedeutsamkeit von Bedürfnissen klarer verstehen wollen, können wir uns Babies anschauen.
+Babies fragen sich nicht, ob es in Ordnung ist zu wollen oder nicht - sie wollen einfach. 
+Und sie sind deshalb nicht fröhlich oder traurig - sie wollen einfach.
+Es scheint, dass die Energie des Wollens einfach das Leben ist, das sie voran treibt.
+
+Als Erwachsene können wir ein wenig dieser ursprünglichen Verbindung mit unseren Bedürfnissen zurück erlangen, ohne 
+Verbissenheit, indem wir unsere Fähigkeit steigern gelassen zu bleiben während wir wollen.
+Wieder ist ein Schlüsselteil dieser Praxis wahrhaftig jedes Bedürfnis von irgendeiner Verbindung mit Geschichten, Strategien
+oder der Angst ob es jemals erfüllt werden wird oder nicht, zu trennen, und einfach nur das Bedürfnis als einen Ausdruck 
+dessen, was es in diesem Moment heißt ein Mensch zu sein, willkommen zu heißen.
+
+Die Fähigkeit einfach nur mit dem Bedürfnis zu sitzen ist ein Schlüsselweg um den Boden der Nicht-Verbissenheit zu berühren.
+In dieser Nicht-Verbissenheit, können wir die Schönheit dessen wiederentdecken, der Mensch zu sein, der wir sind, und des Lebens das zu sein, was es ist.
+
+Diese Arbeit zu machen bringt uns dem näher uns selbst als Geschenk abzubiten.
+Je mehr wir üben, desto mehr sind wir präsent und verbunden mit unseren Bedürfnissen - alles zu wollen ohne Verbissenheit und ohne Angst verurteilt zu werden.
+Dann können wir allem, das uns begegnet entgegen treten.
+Dann gibt es keine "Anlehnung" mehr, weil wir in der Lage sind innerlich so kraftvoll zu stehen, dass wir die Menschlichkeit 
+anderer sehen können, wir können ihr "ja" hinter ihrem "nein" hören, und wir können uns sowohl mit ihrem als auch mit unserem Bedürfnis verbinden.
+Solche Freiheit erlaubt uns auch andere Begrenzungen auf dem Weg zu vollständiger Befreiung zu überwinden.
 
 --------------
 <div style="text-align: justify; font-size: smaller;">
-<a name="attachment">1</a>: Anmerkung der Übersetzung: Im Englischen Original wird im Titel und auch hier das 
+<a name="attachment">1</a> Anmerkung der Übersetzung: Im Englischen Original wird im Titel und auch hier das 
 Wort "attachment" verwendet.<br>  
-<a name="judgements">45</a>: Fast jeder sieht intuitiv, weshalb negative Urteile, über uns selbst oder andere, Mitgefühl und Verbindung beeinträchtigen.
+<a name="judgements">45</a> Fast jeder sieht intuitiv, weshalb negative Urteile, über uns selbst oder andere, Mitgefühl und Verbindung beeinträchtigen.
 Genauso wie Belohnungen ähnliche, zum Teil schlimmere Auswirkungen als Bestrafungen haben, sehe ich auch positive Urteile als zur Trennung beitragend an.
 Das passiert sowohl aufgrund der statischen Natur der Urteile im Vergleich zu bestimmten Beobachungen, als auch aufgrund 
-des Vergleichs mit dem Negativen, den sie implizit enthalten.
+des Vergleichs mit dem Negativen, den sie implizit enthalten.<br>
+<a name="practice">46</a> Diese Notizen sind nicht als ein Ersatz für das Lernen aus Erfahrung gedacht, das für die Praxis und die Integration nötig ist. 
 </div>
