@@ -46,9 +46,11 @@ und dem Bedürfnis aufzubauen, so zu tun, als hätten wir es nicht, unglimpflich
 uns zu sagen, wir "sollten" es nicht haben.
 Wenn wir uns ein Bedürfnis zu Eigen machen hegen wir tatsächlich keine negativen Urteile über uns selbst, selbst wenn wir die Handlungen, die wir unternehmen um das Bedürfnis zu erfüllen, nicht mögen.<sup>[45](#judgements)</sup)
 
+
+
 <div style="text-align: justify;">
 <a name="attachment">1</a>: Anmerkung der Übersetzung: Im Englischen Original wird im Titel und auch hier das 
-Wort "attachment" verwendet.  
+Wort "attachment" verwendet.<br>  
 <a name="judgements">45</a>: Fast jeder sieht intuitiv, weshalb negative Urteile, über uns selbst oder andere, Mitgefühl und Verbindung beeinträchtigen.
 Genauso wie Belohnungen ähnliche, zum Teil schlimmere Auswirkungen als Bestrafungen haben, sehe ich auch positive Urteile als zur Trennung beitragend an.
 Das passiert sowohl aufgrund der statischen Natur der Urteile im Vergleich zu bestimmten Beobachungen, als auch aufgrund 
