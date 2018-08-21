@@ -3,7 +3,6 @@ title: "Bewusstsein über Bedürfnisse"
 ---
 
 ### *Das Leben Umarmen*
-
 *Abgesehen von seltenen Umständen körperlichen Schadens oder schwerem frühem Missbrauch, haben die meisten 
 Babys und sogar Kleinkinder keine Probleme zu wissen, was sie wollen.
 Das überrascht mich nicht, weil sie immer noch mit dem Leben und ihrem eigenen Selbst verbunden sind, 
