@@ -47,7 +47,27 @@ uns zu sagen, wir "sollten" es nicht haben.
 Wenn wir uns ein Bedürfnis zu Eigen machen hegen wir tatsächlich keine negativen Urteile über uns selbst, selbst wenn wir die Handlungen, die wir unternehmen um das Bedürfnis zu erfüllen, nicht mögen.<sup>[45](#judgements)</sup>
 
 Vollständige innere Freiheit zu erreichen ist eine Einladung unsere Vorstellung von Bedürfnissen neu zu definieren und durch die Schichten von Scham hindurchzulaufen. 
-Scham darüber Bedürfnisse zuhaben, darüber ein bestimmtes Bedürfnis zu haben, und darüber womöglich zu viel oder zu wenig von diesem Bedürfnis in Bezug daruf, was wir haben "sollten", zu haben.
+Scham darüber Bedürfnisse zuhaben, darüber ein bestimmtes Bedürfnis zu haben, und darüber womöglich zu viel oder zu wenig 
+von diesem Bedürfnis in Bezug daruf, was wir haben "sollten", zu haben.
+Nur dann können wir in Frieden mit was auch immer für Bedürfnisse wir in genau der From, in der wir sie haben, haben, leben.
+Denke darüber nach: Wenn du nicht du sein wirst, wer wird es?
+
+Diese neue Verbindung mit uns selbst fürt dann zu beinare purer Magie:
+während wir unsere vollständige Menschlichtkeit aufdecken und umarmen, entdecken wir, dass unsere Bedürfnisse auch einen Weg bieten, wie wir uns mit Menschen verbinden können.
+Weil alle Menschen ohne Ausnahme den selben Satz grundlegender Bedürfnisse haben, haben wir, wann immer wir ein Bedürfnis
+erleben, die Möglichkeit mit dem Rest der Menschheit vereint zu sein.
+Die Erfahrung das Bedürfnis an sich zu haben ist uns allen gemein und gleich, selbst wenn wir unterschiedliche Strategien wählen, um sie zu erfüllen.
+
+Auf einer tieferen Schicht, können Bedürfnisse als die grundlegende Einheit des Lebens selbst verstanden werden.
+Wenn wir uns auf Bedürfnisse, als reine Bewegung des Lebens und auf das Leben zu, einschwingen können, können wir manchmal eine größere Einheit mit dem Leben an sich - eine Verschmelzung mit der Weite von Allem das ist - erfahren.
+Wenn Wollen Leben ist, dann ist jeder Versuch das Wollen aufzugeben, selbst wenn er durch den Versuch, Nicht-Verbissenheit zu kultivieren, motiviert ist, eine Form der Störung des Lebens.
+
+Sich dem Leben in der Form des Wollens zu öffnen, erzeugt eine tiefe und intime Bindung mit uns selbst.
+In der Wahrheit, die in uns lebt, geerdet zu sein wird dann zu einer umfassenden inneren Ressource, die entscheidend für unser Streben nach innerer Freiheit ist.
+
+Auf innere Freiheit und vollständige Akzeptanz unserer Menschlichkeit zu zuarbeiten, bewegt uns über die Vorstellung von 
+Bedürfnissen als äquivalent zu begrenztem Selbstinteresse hinaus und lädt uns ein, neu zu definieren und zu erweitern, was wir mit Bedürfnis meinen, um unsere Leidenschaften und Visionen für die Welt mit einzuschließen.
+Die Talmudischen Rabbis sagten: "Mehr als das Kalb möchte saugen, die Kuh möchte säugen."
 
 
 --------------
