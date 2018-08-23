@@ -21,7 +21,7 @@ Die Hauptherausforderung tritt auf, wenn wir Spannung zwischen dem, was wir woll
 Dann reagieren wir oft in einer von zwei Weisen.
 Äußerlich, mögen wir versuchen das, was ist, mit Kaft dazu zu bewegen mit dem in Einklang zu kommen, was wir wollen; 
 durch reine Zwangsausübung und Drohungen, oder durch die Benutzung subtilerer Formen der Forderung.
-Innerlich mögen wir versuchen, das was wir wollen zu unterdrücken oder es aufzugeben. 
+Innerlich mögen wir versuchen, das, was wir wollen, zu unterdrücken oder es aufzugeben. 
 In beiden Fällen zwigen wir andere oder uns selbst, anstatt in einer dialogischen Beziehung zu sein.
 Keine dieser Strategien beschäftigt sich offen mit dem Leben, und beide führen zu Leid.
 
