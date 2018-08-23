@@ -52,7 +52,7 @@ von diesem Bedürfnis in Bezug daruf, was wir haben "sollten", zu haben.
 Nur dann können wir in Frieden mit was auch immer für Bedürfnisse wir in genau der From haben, in der wir sie haben, leben.
 Denke darüber nach: Wenn du nicht du sein wirst, wer wird es?
 
-Diese neue Verbindung mit uns selbst fürt dann zu beinare purer Magie:
+Diese neue Verbindung mit uns selbst fürt dann zu beinahe purer Magie:
 während wir unsere vollständige Menschlichtkeit aufdecken und willkommen heißen, entdecken wir, dass unsere Bedürfnisse auch einen Weg bieten, wie wir uns mit Menschen verbinden können.
 Weil alle Menschen ohne Ausnahme den selben Satz grundlegender Bedürfnisse haben, haben wir, wann immer wir ein Bedürfnis
 erleben, die Möglichkeit mit dem Rest der Menschheit vereint zu sein.
