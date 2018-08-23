@@ -26,7 +26,7 @@ In beiden Fällen zwigen wir andere oder uns selbst, anstatt in einer dialogisch
 Keine dieser Strategien beschäftigt sich offen mit dem Leben, und beide führen zu Leid.
 
 Die Alternative ist, Offenheit gegenüber der Menschlichkeit unserer eigenen Bedürfnisse aufzubauen, unsere Verbissenheit 
-in Bezug auf das Ergebnis loszulassen ohne das was wir wollen aufzugeben, und unsere Fähigkeit zu stärken Würde, Verbindung,
+in Bezug auf das Ergebnis loszulassen ohne das, was wir wollen, aufzugeben, und unsere Fähigkeit zu stärken Würde, Verbindung,
 Offenherzigkeit und Akzeptanz in Situationen, die wir nicht verändern können, aufrecht zu erhalten.
 
 Das erfordert von uns die radikatle Vorstellung, dass Bedürfnisse ein tiefer Ausdruck des Lebens statt ein "Problem", das
