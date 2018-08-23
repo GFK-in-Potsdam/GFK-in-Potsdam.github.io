@@ -47,7 +47,7 @@ uns zu sagen, wir "sollten" es nicht haben.
 Wenn wir uns ein Bedürfnis zu Eigen machen hegen wir tatsächlich keine negativen Urteile über uns selbst, selbst wenn wir die Handlungen, die wir unternehmen um das Bedürfnis zu erfüllen, nicht mögen.<sup>[45](#judgements)</sup>
 
 Vollständige innere Freiheit zu erreichen ist eine Einladung, unsere Vorstellung von Bedürfnissen neu zu definieren und durch die Schichten von Scham hindurchzulaufen. 
-Scham darüber Bedürfnisse zuhaben, darüber ein bestimmtes Bedürfnis zu haben, und darüber womöglich zu viel oder zu wenig 
+Scham, darüber Bedürfnisse zuhaben, darüber ein bestimmtes Bedürfnis zu haben, und darüber womöglich zu viel oder zu wenig 
 von diesem Bedürfnis in Bezug daruf, was wir haben "sollten", zu haben.
 Nur dann können wir in Frieden mit was auch immer für Bedürfnisse wir in genau der From haben, in der wir sie haben, leben.
 Denke darüber nach: Wenn du nicht du sein wirst, wer wird es?
