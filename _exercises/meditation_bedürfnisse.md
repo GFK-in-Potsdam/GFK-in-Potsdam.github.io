@@ -5,7 +5,8 @@ tags: [Bedürfnisse, Meditation]
 
 ## Beschreibung
 Schau dir die Bedürfnisliste an und suche dir ein Bedürfnis aus, das dich gerade anspricht.
-Sobald du eines gefunden hast, suche dir einen Platz im Raum. Du brauchst platz um einen kleinen Schritt nach vorne und nach hinten gehen zu können.
+Sobald du eines gefunden hast, suche dir einen Platz im Raum. 
+Du brauchst genügend Platz, um einen kleinen Schritt nach vorne und nach hinten gehen zu können.
 
 Wenn du magst, schließe deine Augen. Eine Person wird nun eine Meditation anleiten, in der es darum geht, sich mit diesem Bedürfnis in seiner Fülle zu verbinden. 
 
