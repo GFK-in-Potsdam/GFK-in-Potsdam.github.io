@@ -10,7 +10,7 @@ tags: [Bedürfnisse]
 <p style="text-align: right;">- Alan Lew, This is Real and You are Completely Unprepared</p>
 
 Eines der Schlüsselhindernisse dazu, Bewusstsein über unsere Bedürfnisse zu erlangen und sie willkommen zu heißen, ist die Angst von unseren Bedürfnissen verschlungen zu werden. 
-Insbesondere in einer vielzahl spirituelle Traditionen ist die Idee der Nicht-Verbissenheit<sup>[1](#attachment)</sup> 
+Insbesondere in einer vielzahl spiritueller Traditionen ist die Idee der Nicht-Verbissenheit<sup>[1](#attachment)</sup> 
 so prominent geworden, dass die Idee, unsere Bedürfnisse zu kultivieren als einen Pfad zur Freiheit zu betrachten, bestenfalls merkwürdig erscheint. 
 
 Aber was braucht es, um Verbissenheit loszulassen? Was genau bedeutet das und was können wir tun, um dorthin zu gelangen? 
