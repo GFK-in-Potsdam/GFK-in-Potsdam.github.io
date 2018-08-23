@@ -55,6 +55,7 @@ Erlaubnis zur Übersetzung von der Autorin erteilt.**
   2. Weißt du in jedem Moment, was du willst? 
   3. Wann fällt es dir leicht, wann schwer? Weißt du, was du jetzt willst?
   4. Welche Urteile hast du zu Bedürfnissen allgemein, oder über bestimmte?
+  5. Wie bewertest du den Text? Stimmst du seinen Aussagen zu?
  
 
 ## Übung 1 - Mit einem Bedürfnis in Kontakt treten
@@ -189,6 +190,7 @@ Erlaubnis zur Übersetzung von der Autorin erteilt.**
   2. "Kinder die was wollen, kriegen was auf die Bollen." - Kennst du diesen Spruch? Wie hängt er mit unserer gesellschaftlichen Beziehung zu Bedürfnissen zusammen?
   3. Welche Bedürfnisse "erlaubst" du dir, welche nicht?
   4. Wann fällt es dir besonders schwer anzusprechen, was du brauchst?
+  5. Wie bewertest du den Text? Stimmst du seinen Aussagen zu?
 
 ## Übung 2 - Eine Situation die ich lieber ungeschehen machen würde ...
 Wir alle haben schon einmal Situationen erlebt, von denen wir uns im Nahhinein wünschen, sie wären nicht oder nicht so geschehen.
