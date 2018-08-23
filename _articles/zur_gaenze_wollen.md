@@ -66,14 +66,14 @@ Sich dem Leben in der Form des Wollens zu öffnen, erzeugt eine tiefe und intime
 In der Wahrheit, die in uns lebt, geerdet zu sein wird dann zu einer umfassenden inneren Ressource, die entscheidend für unser Streben nach innerer Freiheit ist.
 
 Auf innere Freiheit und vollständige Akzeptanz unserer Menschlichkeit zu zuarbeiten, bewegt uns über die Vorstellung von 
-Bedürfnissen als äquivalent zu begrenztem Selbstinteresse hinaus und lädt uns ein, neu zu definieren und zu erweitern, was wir mit Bedürfnis meinen, um unsere Leidenschaften und Visionen für die Welt mit einzuschließen.
+Bedürfnissen als äquivalent zu begrenztem Selbstinteresse hinaus. und lädt uns ein neu zu definieren und zu erweitern, was wir mit Bedürfnis meinen, um unsere Leidenschaften und Visionen für die Welt mit einzuschließen.
 Die Talmudischen Rabbis sagten: "Mehr als das Kalb möchte saugen, die Kuh möchte säugen."
 Wir kennen alle die tiefe Befriedigung, die wir erfahren, wenn wir geben, ohne irgendetwas als Gegenleistung zu erwarten, 
 wenn wir jene in Not unterstützen und nähren, wenn wir unsere Träume für die Welt willkommen heißen und 
 wenn wir auf einen Zweck hinarbeiten, der größer ist als wir selbst.
 Fürsorge und Geben sind tiefe, elementare menschliche Bedürfnisse, die unsere getrennte, individualisierte Existenz überwinden, selbst während sie individuelle menschliche Bedürfnisse sind.
 
-Hüte dich jedoch vor der "geheimen Hierarchie" von Bedürfnissen. Wahre Selbst-Akzeptanz heist die ganze Bandbreite und Vielfalt unserer Bedürfnisse willkommen, die personlichen und solche, die mehr darauf ausgerichtet sind zu anderen beizutragen. 
+Hüte dich jedoch vor der "geheimen Hierarchie" von Bedürfnissen. Wahre Selbst-Akzeptanz heißt die ganze Bandbreite und Vielfalt unserer Bedürfnisse willkommen, die personlichen und solche, die mehr darauf ausgerichtet sind zu anderen beizutragen. 
 Keine sind mehr "okay" als andere. 
 Alle von ihnen sind gleichermaßen menschlich.
 
