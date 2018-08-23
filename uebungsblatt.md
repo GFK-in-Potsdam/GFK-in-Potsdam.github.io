@@ -2,6 +2,7 @@
 title: "Wie kann ich gleichzeitig wollen und gelassen bleiben, wenn ich nicht das bekomme, was ich will?"
 layout: single
 classes: [wide]
+reat_time: true
 ---
 
 
