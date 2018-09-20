@@ -90,6 +90,7 @@ Die Anweisungen sind vor allem für die begleitende Person geschrieben
        4. "Wie geht es dir jetzt? Welche Gefühle und Bedürfnisse kommen hoch?
         Gibt es in diesem Moment eine oder mehrere Bitten, die du an dich selbst, 
         die andere Person oder weitere Personen hast?"
-        
-   ### Ernten
-   Was habt ihr erlebt?  
+       
+ 
+### Ernten
+Was habt ihr erlebt?  
