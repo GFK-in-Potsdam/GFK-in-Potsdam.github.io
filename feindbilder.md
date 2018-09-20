@@ -1,4 +1,8 @@
 ---
+title: "Feindbilder"
+layout: single
+classes: [wide]
+read_time: true
 ---
 
 ## Literatur
