@@ -15,11 +15,16 @@ So kannst du Kontakt aufnehmen:
   - [ICS] (nur lesen)
   - [CalDav] (lesen und eigenes eintragen)
   
+<iframe id="open-web-calendar" 
+    src="https%3A%2F%2Fopen-web-calendar.herokuapp.com%2Fcalendar.html%3Furl%3Dhttps%253A%252F%252Fgfk.quelltext.eu%252Fkalender.ics" 
+    allowTransparency="true" scrolling="no" 
+    frameborder="0" height="600px" width="100%"></iframe>
+  
 ## Satzung
 Unsere Satzung kannst du [hier einsehen].
 
 [Mailingliste]: https://lists.myhpi.de/aLAtoDGJ61CdAIkPObsoazUjAq5bTZY
 [ICS]: https://gfk.quelltext.eu/kalender.ics
 [CalDav]: https://gfk.quelltext.eu/kalender/
-[termine]: http://cdn.instantcal.com/cvj.html?id=cv_nav5&file=http%3A%2F%2Fcalender-merger.herokuapp.com%2Fjoin-calenders.ics%3Fhttps%3A%2F%2Fgfk.quelltext.eu%2Fkalender.ics%3D&theme=RE&ccolor=%23ffffc0&dims=1&gtype=cv_monthgrid&gcloseable=0&gnavigable=1&gperiod=month&itype=cv_simpleevent
+[termine]: https%3A%2F%2Fopen-web-calendar.herokuapp.com%2Fcalendar.html%3Furl%3Dhttps%253A%252F%252Fgfk.quelltext.eu%252Fkalender.ics
 [hier einsehen]: satzung.md
